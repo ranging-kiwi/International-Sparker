@@ -1,4 +1,4 @@
-# Chapter 1.
+# Chapter 1
 
 However, the escalation of the war in Vietnam led to active protest and growing unpopularity, and after 1969 he retired from active politics.
 
